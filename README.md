@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @GithubRimStar
-- 👀 I’m interested in, your mom!
-- 🌱 I’m currently learning nothing!
-- 💞️ I’m looking to collaborate on nothing!
-- 📫 How to reach me is through brawlhallabad#6993 or u/PlushFox328 on Reddit.
+Hiya, I'm RimStar. Never am nor will be on here probably in the near future.
+
+You can find me as lowtierpeasant on discord if you need me. Bye!
 
 <!---
 GithubRimStar/GithubRimStar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
